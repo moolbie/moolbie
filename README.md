@@ -1,8 +1,8 @@
--  ello my name is hiro :3
--  i leik gaimz and codning
+-  ello im teo!! :3
+-  i leik gaimz and coding
 -  im curently makin gaimz leik mincraft and doom >:P
--  me wanna make **Extensions**
--  Yu can contakt me on me discord "Cokiesyum"
+-  i make **Extensions**
+-  Yu can contakt me on me discord "ileikgaimz"
 -  Teo prounouns: He/They
 -  Suprrr fun fact: *put funny fact here*
 
